@@ -16,4 +16,7 @@ im really blunt and i have no energy a lot im not being an asshole dnidnidnidnid
 
 rudoxtamsy shippers KILL YOURSEL
 
+
+also im a system / introject dont be a freak ill end it all 
+
 ![](https://komarev.com/ghpvc/?username=RUDO-SUREBREC&color=661c15&style=plastic&label=🧨&abbreviated=true)
