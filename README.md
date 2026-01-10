@@ -14,6 +14,8 @@ im usually sitting by myself because im stupid or im running around aimlessly wh
 
 im really blunt and i have no energy a lot im not being an asshole dnidnidnidnidnidni . sometimes im joyous and jolly
 
+im sleepy / absolutely exhausted often so i tend to be quiet
+
 rudoxtamsy shippers KILL YOURSEL
 
 
